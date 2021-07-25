@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AquazFresh
 - 👀 I’m interested in a lot of things 
 - 🌱 I’m currently learning electronics 
-- 💞️ I’m looking to collaborate on Marine biology and electronics 
+- 👍 I’m looking to collaborate on video games 
 - 📫 How to reach me: Discord @BoundAquaz * Fresh *#8224
 
 <!---
